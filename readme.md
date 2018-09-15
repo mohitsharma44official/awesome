@@ -1,4 +1,4 @@
-Go Follow and Subscribe [TheMenYouWantToBe](https//:themenyouwanttobe.wordpress.com#readme)
+Go Follow and Subscribe [TheMenYouWantToBe](https//:themenyouwanttobe.wordpress.com)
 
 ## Contents
 
